@@ -3,15 +3,15 @@
 
 - 🌱 I’m currently learning **Machine Learning and Image Processing**
 
-- 👨‍💻 Freelancer [Fiverr](https://www.fiverr.com/furmatech3d)
+- 👨‍💻 Freelancer on [Fiverr](https://www.fiverr.com/furmatech3d)
 
-- 📝 I regularly write articles on [https://akademi.robolinkmarket.com/author/furkan-bakkal/](https://akademi.robolinkmarket.com/author/furkan-bakkal/)
+- 📝 I regularly write articles on [Robolink Academy](https://akademi.robolinkmarket.com/author/furkan-bakkal/)
 
 - 💬 Ask me about **Arduino, Raspberry Pi, Python**
 
 - 📫 How to reach me **furkanbakkal@outlook.com.tr**
 
-- ⚡ Fun fact **I'm serious.**
+- ⚡ Fun fact [Spotify](https://open.spotify.com/track/3BpjGJcn3ethvch0CJsqXo?si=8afb2c1f600843c9)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
