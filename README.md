@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Furkan</h1>
+<h1 align="center">Hi, I'm Furkan</h1>
 <h3 align="center">I just randomly pressing keys then computer makes stuff. That's all.</h3>
 
 - 👨‍💻 I was Freelancer on [Fiverr](https://www.fiverr.com/furmatech3d)
