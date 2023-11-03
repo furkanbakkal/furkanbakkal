@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **furkanbakkal@outlook.com.tr**
 
-- ⚡ Fun fact [Spotify](https://open.spotify.com/track/0gsl92EMIScPGV1AU35nuD?si=713761f6286a42d6)
+- ⚡ Fun fact [Spotify](https://open.spotify.com/intl-tr/track/4NioO5R9sHEZh4cGzMHyNt?si=791e3db8471d4803)
 
 
 
