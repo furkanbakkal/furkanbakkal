@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **furkanbakkal42@gmail.com**
 
-- ⚡ Fun fact [Spotify](https://open.spotify.com/intl-tr/track/4NioO5R9sHEZh4cGzMHyNt?si=791e3db8471d4803)
+- ⚡ Fun fact [Spotify](https://open.spotify.com/intl-tr/track/0nLiqZ6A27jJri2VCalIUs?si=c197ac54ec554257)
 
 
 
